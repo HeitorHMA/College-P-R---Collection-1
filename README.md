@@ -1,1 +1,1 @@
-# College-P-R---Collection-1
+# College-PR-Collection-1
